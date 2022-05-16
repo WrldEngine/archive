@@ -1,1 +1,1 @@
-# archive
+# Uzbektelecom webcams
